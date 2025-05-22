@@ -77,7 +77,7 @@ I'm currently focused on:
 - LinkedIn: [Nati Gurevich](https://www.linkedin.com/in/nati-gurevich-36868711b/)
 - Email: [nati_g4@hotmail.com](mailto:nati_g4@hotmail.com)
 - Phone: 054-4785120
-- Website: nati-gurevich.com
+- Website: [nati-gurevich.com](https://www.nati-gurevich.com/en)
 
 ---
 
